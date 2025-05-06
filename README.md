@@ -1,2 +1,4 @@
-# nailified.github.io
-Website for Nailified DIY Nail Kits
+# Welcome to Nailified!
+Here, Nails are Simplified! <3
+
+MORE DETAILS COMING SOON!
